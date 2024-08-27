@@ -12,4 +12,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 @eloisa_mz
 
+ eloisa.zielinski@escola.pr.gov.br
+ 
 ![](https://media1.tenor.com/m/J3XSRfUbHv8AAAAC/conmebol-libertadores-giorgian.gif)
